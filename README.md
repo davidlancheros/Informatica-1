@@ -1,1 +1,0 @@
-# Informatica-1
